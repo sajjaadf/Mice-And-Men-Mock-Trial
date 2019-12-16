@@ -1,3 +1,3 @@
-- [ ] Curley
-- [ ] George
-- [ ] Candy
+- [x] Curley
+- [x] George
+- [x] Candy
