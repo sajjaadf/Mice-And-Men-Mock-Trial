@@ -1,6 +1,6 @@
 # _Of Mice And Men_ Mock Trial
 ### Checklist
-- [ ] Decide what charge(s) to charge Lennie Small and inform the defendant and defense team before the next class. 
+- [x] Decide what charge(s) to charge Lennie Small and inform the defendant and defense team before the next class. 
 - [ ] Decide which witnesses to call to the stand and notify the witnesses.
 - [ ] Meet with each witness before the mock trial begins to prep them for the trial. 
 - [ ] Write opening statement essay with an introduction and two body paragraphs that give claims, evidence and reasoning for why Lennie Small should be found guilty.
