@@ -1,4 +1,4 @@
-# _Of Mice And Men_ Mock Trial
+# _Of Mice And Men_ Mock Trial 
 ### Checklist
 - [x] Decide what charge(s) to charge Lennie Small and inform the defendant and defense team before the next class. 
 - [ ] Decide which witnesses to call to the stand and notify the witnesses.
@@ -9,4 +9,4 @@
 - [ ] Practice the questions and answers with the witnesses. Be sure they are ready to be cross-examined as well.
 - [ ] Prepare a closing statement.
 - [ ] Rehearse your opening and closing statements.
-
+### DO NOT EDIT THE MASTER BRANCH!
