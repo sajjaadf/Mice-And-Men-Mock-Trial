@@ -30,3 +30,5 @@ _Thinks for a while._
 - Not 3rd chance.
 - Damage in prison less that damage in society.
 - Bigger Danger to society if runs away.
+- Yes, I once told to him to jump into a river. 
+- Persuided by bad person to do bad things.
