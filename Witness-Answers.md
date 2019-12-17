@@ -36,3 +36,6 @@ _Thinks for a while._
 - Damage in jail less and more irrelavent than all society.
 ### Lennie
 - Lennie Threated Prosectuter (to do the same thing that she did to Curleys wife.)
+- Sitting in barn, and quite conversational. 
+- I killed the puppy (George would not let me had rabbits)
+_Lies in Interview_
