@@ -32,3 +32,5 @@ _Thinks for a while._
 - Bigger Danger to society if runs away.
 - Yes, I once told to him to jump into a river. 
 - Persuided by bad person to do bad things.
+- Lennie can possibly be used as an weapon.
+- 
