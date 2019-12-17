@@ -8,3 +8,11 @@
 
 ### Candy
 
+- He found Curleys Wife's Body
+- Her neck was broken, but she looked like she was sleeping
+- Not sure about if other people were on the farm. 
+- Aware of Lennies past actions
+- He is capable but would not have done it with malicious intent. 
+- Could have done it in a struggle. 
+
+### George
