@@ -33,4 +33,5 @@ _Thinks for a while._
 - Yes, I once told to him to jump into a river. 
 - Persuided by bad person to do bad things.
 - Lennie can possibly be used as an weapon.
-- 
+- Damage in jail less importaint than all society
+### Lennie
