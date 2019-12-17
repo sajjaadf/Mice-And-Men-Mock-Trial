@@ -11,4 +11,5 @@
 - What happened from your point of view?
 - How did Curleys wife die?
 - Why did you run away to the brush?
-
+- Were you alone with Curleys wife on the ranch?
+- What were you doing with Curleys wife?
