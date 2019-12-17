@@ -19,8 +19,7 @@
 - Yes, he broke Curleys arm or wrist. 
 - Yes, because he does not understand that he could not kill them.
 - Yes, because he has remorse for it. 
-- Yes, he tried to touch the girls dress.
-<br>
+- Yes, he tried to touch the girls dress.<br/>
 _Thinks for a while._
 - Yes, he does understand he should not kill.
 - Yes, he thought it was wrong, because he thought I would be mad. 
@@ -38,5 +37,5 @@ _Thinks for a while._
 ### Lennie
 - Lennie Threated Prosectuter (to do the same thing that she did to Curleys wife.)
 - Sitting in barn, and quite conversational. 
-- I killed the puppy (George would not let me had rabbits)
-<br> _Lies in Interview_
+- I killed the puppy (George would not let me had rabbits)<br/>
+_Lies in Interview_
