@@ -34,9 +34,18 @@ _Thinks for a while._
 - Persuided by bad person to do bad things.
 - Lennie can possibly be used as an weapon.
 - Damage in jail less and more irrelavent than all society.
-### Lennie
-- Lennie Threated Prosectuter (to do the same thing that she did to Curleys wife.)
+### Lennie (Custody)
+- [X] Lennie Threated Prosectuter (to do the same thing that he did to Curleys wife.) Allowed to restarin him
 - Sitting in barn, and quite conversational. 
 - I killed the puppy (George would not let me had rabbits)<br/>
 _Lies in Interview, then goes Crazy_ (Pleads the 5th)
 # Unrelible source.
+What happened from your point of view?
+
+How did Curleys wife die?
+
+Why did you run away to the brush?
+
+Were you alone with Curleys wife on the ranch?
+
+What were you doing with Curleys wife?
