@@ -9,6 +9,6 @@
 - [ ] Slim
 - [X] Lennie
 - What happened from your point of view?
-- How did Curleys wife died?
-- Why did you run away to to bush?
+- How did Curleys wife die?
+- Why did you run away to the brush?
 
