@@ -35,3 +35,4 @@ _Thinks for a while._
 - Lennie can possibly be used as an weapon.
 - Damage in jail less and more irrelavent than all society.
 ### Lennie
+- Lennie Threated Prosectuter (to do the same thing that she did to Curleys wife.
