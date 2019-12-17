@@ -5,3 +5,6 @@
 - Do you think that Lennie would do something like this again
 - Lennie is lethal and is within his nature. 
 - He is capable of killing someone.
+
+### Candy
+
