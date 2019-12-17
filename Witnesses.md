@@ -9,7 +9,6 @@
 - [ ] Slim
 - [X] Lennie
 - What happened from your point of view?
-- Do you think what you did was wrong?
 - How did Curleys wife died?
 - Why did you run away to to bush?
 
