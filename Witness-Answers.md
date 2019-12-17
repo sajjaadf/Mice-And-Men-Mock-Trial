@@ -38,5 +38,5 @@ _Thinks for a while._
 - Lennie Threated Prosectuter (to do the same thing that she did to Curleys wife.)
 - Sitting in barn, and quite conversational. 
 - I killed the puppy (George would not let me had rabbits)<br/>
-_Lies in Interview, then goes Crazy_
-- 
+_Lies in Interview, then goes Crazy_ (Pleads the 5th)
+
