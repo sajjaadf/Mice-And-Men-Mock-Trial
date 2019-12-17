@@ -26,3 +26,7 @@ _Thinks for a while._
 - Its away from everybody. (At the brush)
 - Depending on the situation, running away.
 - I guess not why, that is why we and Lennie wanted to be isolated, safe from himself. (Keep away from other people)
+- Keeps away from other people.
+- Not 3rd chance.
+- Damage in prison less that damage in society.
+- Bigger Danger to society if runs away.
