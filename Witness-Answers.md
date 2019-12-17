@@ -40,12 +40,16 @@ _Thinks for a while._
 - I killed the puppy (George would not let me had rabbits)<br/>
 _Lies in Interview, then goes Crazy_ (Pleads the 5th)
 # Unrelible source.
-What happened from your point of view?
-
-How did Curleys wife die?
-
-Why did you run away to the brush?
-
-Were you alone with Curleys wife on the ranch?
-
-What were you doing with Curleys wife?
+### What happened from your point of view?
+- Not answering
+### How did Curleys wife die?
+- Lennie kills Curley's wife by breaking her neck because he is shaking her, trying to make her be quiet so he won't get into trouble.
+### Why did you run away to the brush?
+- "Hide in the brush," said Lennie slowly. "Hide in the brush till I come for you. ... Steinbeck evidently has George tell Lennie what to do if he gets in trouble because George will be the only one who knows where Lennie is to be found when the men at the ranch go hunting for him.
+### Were you alone with Curleys wife on the ranch?
+Yes.
+### What were you doing with Curleys wife?
+- "Lenny accidentally kills Curley's wife by shaking her so hard that her neck breaks. Lenny likes animals and soft things, but he is a big, strong man. Curley's wife finds Lenny in the barn mourning the death of his puppy, and she tries to comfort him by allowing him to stroke her hair."
+- Lennie makes several bad decisions throughout the course of the book.  The guys have had to relocate because of a bad decision he made in Weed.  Once on the ranch in their new jobs, he takes a puppy, which he promptly kills, and then breaks Curley’s wife’s neck.
+- In the first chapter of Of Mice and Men, the main character Lennie kills a mouse accidentally. Lennie, as a character, likes to pet soft things, such as mice. But he is a physically strong character who can 'buck as much barley as two men', and so he accidentally killed the mouse.
+- The main conflict in Of Mice and Men is Lenny versus Society. He is seen as the bad guy, when really he has a lot of bad things happening to him.
