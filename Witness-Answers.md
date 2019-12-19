@@ -35,7 +35,7 @@ _Thinks for a while._
 - Lennie can possibly be used as an weapon.
 - Damage in jail less and more irrelavent than all society.
 ### Lennie (Custody)
-- [X] Lennie Threated Prosectuter (to do the same thing that he did to Curleys wife.) Allowed to restrain him
+- [ ] Lennie Threated Prosectuter (to do the same thing that he did to Curleys wife.) Allowed to restrain him
 - Sitting in barn, and quite conversational. 
 - I killed the puppy (George would not let me had rabbits)<br/>
 _Lies in Interview, then goes Crazy_ (Pleads the 5th)
